@@ -1,1 +1,0 @@
-# Christopher-Moore-JCP-Webpage
